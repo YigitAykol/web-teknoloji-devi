@@ -1,1 +1,1 @@
-# web-teknoloji-devi
+# g201210350.github.io
